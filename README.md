@@ -1,1 +1,0 @@
-# [Idil]'s Notes 
